@@ -1,4 +1,4 @@
-#  
+#  hooked smart Script offers the most advanced hooked Script, with one-hit kill and auto-farm. Perfect for dominating any match.
 
 
 
